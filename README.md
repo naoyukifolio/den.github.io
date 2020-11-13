@@ -1,1 +1,0 @@
-# naoyukifolio.github.io
